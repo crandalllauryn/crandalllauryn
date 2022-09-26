@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @crandalllauryn
-- 👀 I’m interested in anime, video games, parrots
-- 🌱 Proficient in Python, Learning C and Java
-- 💞️ I’m looking to collab on anything
-- 📫 How to reach me crandalllauryn@gmail.com, 269-252-2914
+- Hey, call me @crandalllauryn
+- I’m into anime, video games, birbs
+- Proficient in Python, Learning C and Java
+- I’m looking to collab on anything
+- Feel free to get in touch with me @ crandalllauryn@gmail.com, 269-252-2914
