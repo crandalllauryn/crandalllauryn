@@ -2,4 +2,4 @@
 - I’m into anime, video games, birbs
 - Proficient in Python, Learning C and Java
 - I’m looking to collab on anything
-- Feel free to get in touch with me @ crandalllauryn@gmail.com, 269-252-2914
+- Contact me at crandalllauryn@gmail.com, 269-252-2914
